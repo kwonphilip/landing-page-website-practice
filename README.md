@@ -7,4 +7,4 @@ Image credits:
   - rabbit by Alexa from Pixabay
   - little monster by uleem odhit from Pixabay
   - frogs by Alexa from Pixabay
-  - horse by Alexa from Pixabay
+  - gorilla by Vicki Lynn from Pixabay
